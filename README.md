@@ -1,1 +1,1 @@
-[Read your ATHKAR🌇] (https://azzaeid.github.io/athkar/)
+**[Read your ATHKAR🌇](https://azzaeid.github.io/athkar/)**
